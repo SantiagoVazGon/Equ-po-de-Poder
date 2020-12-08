@@ -1,0 +1,1 @@
+# Equ-po-de-Poder
